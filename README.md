@@ -1,2 +1,2 @@
-# mundo-do-colecionador
-gg ezz &amp; Knuckles
+# Mundo-do-Colecionador
+Colecionando memórias, Conquistando corações
